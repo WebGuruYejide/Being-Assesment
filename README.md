@@ -1,2 +1,5 @@
 # Being-Assesment
-Personal Peace Process State of Being Assessment
+Personal Peace Process @ Nyleve's Haven
+Louisville, kentucky 2021
+
+State of Being Assessment
